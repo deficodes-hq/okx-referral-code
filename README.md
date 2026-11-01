@@ -1,0 +1,2 @@
+# okx-referral-code
+
